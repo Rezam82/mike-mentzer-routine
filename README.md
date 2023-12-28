@@ -1,5 +1,8 @@
 ﻿Mike Mentzer's Ideal Program
 
+![mike-mentzer-routine](https://github.com/Rezam82/mike-mentzer-routine/assets/134881608/1ffcf74a-8f40-44b8-9756-aa3297458c24)
+
+
 Day 1: Chest - Back
 
 1: Peck Deck 6-10 reps - superset 2: Incline Press 1-3 reps
